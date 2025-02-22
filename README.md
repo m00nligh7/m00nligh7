@@ -9,7 +9,7 @@
 
 - 🤫 I’m looking to collaborate on **some projects :)**
 
-- 👨‍💻 All of my projects are available at [my Github](https://github.com/m00nligh7/)
+- 👨‍💻 All of my projects are available at [my Github](https://github.com/m00nligh7?tab=repositories)
 
 - 💬 Ask me about **everything you want**
 
