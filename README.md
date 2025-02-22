@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **everything you want**
 
-- 📫 How to reach me? **You can reach me on my Discord: __moonlight_uwu__**
+- 📫 How to reach me? **You can reach me on my Discord: (later)**
 
 - 🤭 Fun fact: **I think, i am really funny 🤭**
 
